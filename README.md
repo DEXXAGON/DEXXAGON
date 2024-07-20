@@ -1,6 +1,7 @@
 - HI HEHAEugly page i know
 - ull probably find me in the half life area!!!!!!!!!!
 - BYI I get comfortable with people very quickly, if I make a joke that pisses you off please TELL ME
+- im the worlds most awkward roleplayer. i mean it. if you talk to me in character i might cry /hj
 - who youll probable see me walking around as ᕕ( ᐕ )ᕗ
 
 ![](https://cdn.discordapp.com/attachments/830829182443454467/1263867198506668195/pony-town-_KALEB-trot-blinking-padded-4x.gif?ex=669bcb8d&is=669a7a0d&hm=bcbedd6c02424958af9e497c4811ca20ea635d3f9bfbfdc74bdee2e302d6f493&)
